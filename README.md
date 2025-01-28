@@ -1,0 +1,2 @@
+# privateshi
+@radiate on tg
